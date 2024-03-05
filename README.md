@@ -1,3 +1,4 @@
+![logo](https://github.com/singla2521/singla2521/blob/main/LAKSHAY%20SINGLA.jpg)
 <h1 align="center">Hi Lakshay Singla,here</h1>
 <h3 align="center">Aadat badal sakta hu par andazz wahi rahega 😉😎🤞🏻💪🏻</h3>
 <img align ="right" alt="coding" width="400px" src="https://media0.giphy.com/media/VTtANKl0beDFQRLDTh/giphy.webp?cid=ecf05e47d0d2tab1pkk5994tcxomp8um3zt9kek6u6em91m4&ep=v1_gifs_search&rid=giphy.webp&ct=g">
